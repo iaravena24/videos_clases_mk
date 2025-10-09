@@ -25,20 +25,20 @@ A continuación puedes acceder a las grabaciones publicadas en el canal oficial 
 1. [📢 Estrategias efectivas para redes sociales — Parte 1](https://www.youtube.com/watch?v=4DXbyGMiD9s&list=LL&index=7)  
    *Cómo planificar y estructurar contenidos atractivos para redes sociales.*
 
-2. [💡 Cómo crear publicaciones que conecten con tu público](https://www.youtube.com/watch?v=_eBIIM9tsII&list=LL&index=3)  
+2. [💡E-mail Marketing y otras herramientas](https://www.youtube.com/watch?v=_eBIIM9tsII&list=LL&index=3)  
    *Buenas prácticas en diseño de mensajes y elección de plataformas.*
 
-3. [📈 Introducción al Community Management](https://www.youtube.com/watch?v=cSB-4WPq0Jo&list=LL)  
-   *Rol del community manager y herramientas de gestión diaria.*
+3. [📈 Herramientas de Marketing Digital](https://www.youtube.com/watch?v=cSB-4WPq0Jo&list=LL)  
+   *Segmentación de mercado, e mail marketing e inteligencia artificial.*
 
-4. [🎯 Creación de un calendario de publicaciones profesional](https://www.youtube.com/watch?v=Wl441sa74x8&list=LL&index=8)  
-   *Organización del contenido para aumentar visibilidad y coherencia.*
+4. [🎯Fumdamentos del Marketing Digital](https://www.youtube.com/watch?v=Wl441sa74x8&list=LL&index=8)  
+   *Conceptos Clave de marketing digital para redes sociales.*
 
-5. [📊 Métricas y análisis en redes sociales](https://www.youtube.com/watch?v=XSGhkfx-7Rs)  
-   *Interpretación de estadísticas y toma de decisiones basada en datos.*
+5. [📊 Gestion de Trolls y Reputacion Digital](https://www.youtube.com/watch?v=XSGhkfx-7Rs)  
+   *Manejo de Crisis en Redes Sociales y ambiente digital.*
 
-6. [🤝 Cómo construir una marca personal sólida](https://www.youtube.com/watch?v=JGKUp75kyrA)  
-   *Claves para posicionarte en redes como profesional o emprendedor.*
+6. [🤝 Targeting y Retargeting](https://www.youtube.com/watch?v=JGKUp75kyrA)  
+   *Targeting y Retargeting como estrategia de marketing.*
 
 ---
 
