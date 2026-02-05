@@ -40,7 +40,11 @@ A continuación puedes acceder a las grabaciones publicadas en el canal oficial 
 6. [🤝 Targeting y Retargeting](https://www.youtube.com/watch?v=JGKUp75kyrA)  
    *Targeting y Retargeting como estrategia de marketing.*
 
+7. **[Autocuidado en Atención de Clientes](https://drive.google.com/file/d/1M6L61F3jPd6a1Ra4fTbS2Pkqq6TFtX2C/view?usp=drive_link)**  
+   *Buenas prácticas de autocuidado emocional y manejo saludable del estrés en equipos de atención al cliente.*   
+
 ---
 
 > Estas clases fueron impartidas en el marco del programa **“Talento Local – Banco BCI”**,  
 > orientado a fortalecer las competencias digitales y de comunicación online de los participantes.
+> La clase N°7 es de Atencion de clientes, en el modulo de gestion de Reclamos, trabajo realizado para "Always English"
