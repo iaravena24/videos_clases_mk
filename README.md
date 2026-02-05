@@ -40,8 +40,8 @@ A continuación puedes acceder a las grabaciones publicadas en el canal oficial 
 6. [🤝 Targeting y Retargeting](https://www.youtube.com/watch?v=JGKUp75kyrA)  
    *Targeting y Retargeting como estrategia de marketing.*
 
-7. **[Autocuidado en Atención de Clientes](https://drive.google.com/file/d/1M6L61F3jPd6a1Ra4fTbS2Pkqq6TFtX2C/view?usp=drive_link)**  
-   *Buenas prácticas de autocuidado emocional y manejo saludable del estrés en equipos de atención al cliente.*   
+7. **[Autocuidado en Atención de Clientes – Material Complementario](https://drive.google.com/file/d/1kP6VmZH-y0VvErzHTtS0EUB5-HYkyiVU/view?usp=drive_link)**  
+   *Recursos prácticos para fortalecer el autocuidado emocional en equipos de atención al cliente.*   
 
 ---
 
